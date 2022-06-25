@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **ankush19om@outlook.com**
 
-- ⚡ Fun fact **Many owners of large tech companies loved video games as kids 😊**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
